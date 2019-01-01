@@ -1,4 +1,4 @@
-# NUTeaching
+paul P. 
 
 # Revenue Management
 
